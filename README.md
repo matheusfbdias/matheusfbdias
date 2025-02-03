@@ -19,7 +19,7 @@ Sou um entusiasta de tecnologia com conhecimento e experiencia em projetos pesso
 
 ## 📫 Entre em Contato
 - **E-mail:** matheusfbd@hotmail.com
-- **LinkedIn:** [Seu LinkedIn](https://br.linkedin.com/in/matheus-felipe-barbosa-dias-2362ab11a)
+- **LinkedIn:** [Meu LinkedIn](https://br.linkedin.com/in/matheus-felipe-barbosa-dias-2362ab11a)
 
 Obrigado por visitar meu perfil GitHub! Estou sempre aberto a novas colaborações e oportunidades. Vamos nos conectar! 🚀
 
